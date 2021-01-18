@@ -5,19 +5,19 @@ This is a list of movies I show to classes to illustrate sedimentary processes, 
 ## Slide
 
 - Japan https://youtu.be/eR77MhKwAew 
-- experimental landslide https://youtu.be/wy0PVuS8RSk?t=10
+- Experiment https://youtu.be/wy0PVuS8RSk?t=10
 - Houses, Norway: https://youtu.be/VWOsGjJo_oI and https://twitter.com/JanFredrikD/status/1268270255509512193?s=20
 
 ## Slump 
 - Pantai Remis https://youtu.be/5XupgwBIBCw?t=15 
-- Port Manaus Brazil (play at half speed0 https://youtu.be/rTzn2IGRVhc?t=37
+- Port Manaus Brazil (play at half speed) https://youtu.be/rTzn2IGRVhc?t=37
 
 ## Flow
-- snow debis flow in Alaska 1:05 to 1:27 https://youtu.be/Xh23H3QApk8?t=65 
+- snow debris flow in Alaska 1:05 to 1:27 https://youtu.be/Xh23H3QApk8?t=65 
 - road crossing https://youtu.be/5KCCV9P3ZHo?t=13 
+- Aconcagua https://youtu.be/jNVwspunNn0?t=34 
 
 ## Transitional
-- Aconcagua https://youtu.be/jNVwspunNn0?t=34 
 - flow transformation https://youtu.be/1t9Pb39eW3Y?t=97
 
 ## Turbidity current
