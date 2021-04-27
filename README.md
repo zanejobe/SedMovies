@@ -9,7 +9,7 @@ This is a list of movies I show to classes to illustrate sedimentary processes, 
 - Houses, Norway: https://youtu.be/VWOsGjJo_oI and https://twitter.com/JanFredrikD/status/1268270255509512193?s=20
 
 ## Slump 
-- Pantai Remis https://youtu.be/5XupgwBIBCw?t=15 
+- Pantai Remis REMASTERED video https://youtu.be/3EXyyg-2RnA and OLD https://youtu.be/5XupgwBIBCw?t=15 
 - Port Manaus Brazil (play at half speed) https://youtu.be/rTzn2IGRVhc?t=37
 
 ## Flow
